@@ -35,3 +35,39 @@ for individuals in need
 free Sunday breakfasts
 ● Holiday Heroes - Assemble care packages for children
 in hospitals
+
+## SKILLS
+Java
+AutoCAD
+Familiar with Windows, Mac, and Chrome
+Operating Systems
+
+## AWARDS
+AP Scholar With Distinction (2024) -
+Achieved a score of 3 or higher on 5 AP
+exams and maintained an average score of
+3.5+
+National Honor Society Member (2023) -
+Inducted for having above a 3.5 GPA,
+consistently volunteering, and showing
+good character
+Top 50% in the American Math
+Competition 12 (2023) - Scored higher than
+50% of participants in the 2023 American
+Math Competition (AMC 12)
+
+## EXTRACURRICULARS
+Construction Crew - Build sets for school
+plays and musicals and ensure performances
+run smoothly
+Math Team - Participate in weekly practices
+and monthly meets in Illinois’s Northwest
+Suburban Math League
+Math Tutor - Assist peers that need extra
+help in various math classes
+ChickTech Mentee - Connect with a mentor
+to work on projects and plan for college
+Piano - Practice daily, attend lessons, and
+perform at annual recitals
+Shotokan Karate - Attend 3 classes per
+week, holding a rst kyu brown belt
